@@ -1,1 +1,1 @@
-# jamaludin.github.io
+# jamaludin.github.io/jamal.html
